@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DJDSolo
-- 👀 I’m interested in coloborativing with great people
+- 👀 I’m interested in collaborating with great people
 - 🌱 I’m currently learning how to find great people
 - 💞️ I’m looking to collaborate on anything tech.
 - 📫 How to reach me - hit me up here.
